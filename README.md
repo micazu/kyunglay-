@@ -10,3 +10,7 @@ no tenia plata en la sube :(
 asi q me gaste toda mi plata..
 pero renata me salvo
 fin
+**holaaaaaa entrenn** [link a googleee](http://google.com)
+*eu no re piola se puede **combinar**eaaaaaa*
+
+[x]recibir 
